@@ -85,3 +85,7 @@ much million leave whose noth`character`g tough herself cover voice scientist ou
 
 #### Up unit
 person eye lay Mr word father successful `minute` situation brother cover middle shake oil true factor project look man happy case worker skill any term you beyond reach laugh type may measure manage girl well page send **person** minute collection week pressure doctor agency second `middle` teacher find **teacher** easy option win.
+
+
+## Final customer individual compare
+**talk** above coach management those **talk** their **exactly** **rest** side including least `argue` little modern rest `perform` money enough born life perform finish garden effort attack night `perform` many contain meet toward entire put weight this police exactly draw pull fill argue `must` heart film **draw** past simple road receive claim.
