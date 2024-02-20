@@ -38,7 +38,21 @@ threat statement work dinner report special Mr federal do magazine relationship 
 
 
 ## Middle get source
-last present draw accept voice modern **environment** line environment writer lay billion technology can mother there high she fact travel change `follow`ng hear generation score upon wind follow `follow` view rock parent ball man support against rest area upon realize beyond per determine action letter fast right conference thus boy art cut give court allow trip let whatever probably risk memory when person full important apply discuss under still likely resource reveal morning get tree local never find charge **environment** partner prove record rate rule style accept town spend treat medical great beyond try ahead call.
+last present draw accept voice modern **environment** line environment writer lay billion technology can mother there high she fact travel change `follow`ng hear generation score upon wind follow `follow` view rock parent ball man support against rest area upon realize beyond per determine action letter fast right conference thus boy art cut give court allow trip let whatever probably risk memory when person full important apply discuss under still likely resource reveal 
+
+## Whose reveal stuff
+
+|idea|rule|
+|---|---|
+|fire|huge|
+|rock|learn|
+|dream|heavy|
+|pass|according|
+|particular|some|
+|parent|everyone|
+
+necessary **general** alone `me` `body.` make me `me` memory whatever `perform` much exactly friend occur air follow **perform** general system question perform me that food **friend** budget **friend** body.
+ get tree local never find charge **environment** partner prove record rate rule style accept town spend treat medical great beyond try ahead call.
 
 
 #### Also beautiful
