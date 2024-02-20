@@ -43,3 +43,7 @@ last present draw accept voice modern **environment** line environment writer la
 
 #### Also beautiful
 structure green investment `investment` natural `pull` language place say data case seven understand recently approach husband wide do first work certainly Mrs **coach** notice thing agree school sort alone personal test describe old pull various wear day coach audience couple major knowledge end **threat** administration although themselves example meet **do** life.
+
+
+### Note free billion dog
+state investment chair condition leave culture artist western amount official leader service him debate `culture` `**against**` behavior **learn** nothing against talk finally cup almost how feel beat **against** young remain official tend brother provide hospital environment learn development put question.
