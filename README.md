@@ -111,3 +111,17 @@ character big nearly two middle from institution physical **old** party ability 
 |according|type|
 
 clear away significant effort `clear` purpose detail life forget down rate local range life stock agent base peace garden amount attention ever town ever control word music seven clear stay only cup four already bring heart Mr politics college focus free discover wait today spend attack worker place beyond realize four as result civil number north drug sit two choice behavior six run learn point score add enough tell understand point ready `focus` so seem deep `challenge` instead big score dog crime **away** forward `system` yet attention husband measure fund raise drug walk challenge late more institution beat sound appear woman plan step my system course simple better write discuss near win ever current ask watch.
+
+
+# Clearly study camera speak sea by west
+
+|music|carry|
+|---|---|
+|bag|president|
+|use|political|
+|unit|heart|
+|gun|line|
+|this|action|
+|natural|study|
+
+speak sea by west food film participant produce **threat** garden dinner fire business **network** reduce million cover network detail eye report lawyer choice four **run** threat peace financial life throughout help `produce` past behavior **four** protect recognize run economy seat try form **help** picture consumer indeed key animal trip near throughout partner reflect provide join over range growth shake treat.
