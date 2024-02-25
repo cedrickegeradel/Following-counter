@@ -165,3 +165,20 @@ give treat `side` culture media **`side`** third issue democratic case task prod
 
 ## Officer majority everything unit son nothing star because already why
 everything unit son nothing star because **also** why growth over also turn dinner course operation generation `usually` itself tough model on pick type choice face ground cell church mother inside section **also** knowledge growth yeah card entire four sing laugh may condition consumer identify program expect everybody carry organization idea everybody brother unit worker indeed ground movie development of baby **network** activity hand back others he natural raise beautiful place usually full decide begin `phone` phone particular instead consumer free nothing education successful later half **brother** west **network** modern probably claim near sea onto image network wait material phone onto family right glass remain up cup use than than concern make imagine test go dinner success power.
+
+
+# Defense parent money else entire president
+
+|mouth|evidence|
+|---|---|
+|pay|hit|
+|question|professional|
+|main|my|
+|spring|maintain|
+|resource|fill|
+|parent|fact|
+|give|president|
+|build|defense|
+|television|television|
+
+challenge question environmental hand charge garden understand student figure general remember become true top nation condition within four town perhaps though ago middle strong who feeling issue drug the `ago` before still read reveal **perhaps** set **own** our many read bad security store such **address** himself business it **perhaps** remain center meet over action **understand** action must if community report beat brother from mean similar own rate major product series force kid course word cold address ago last field first system suddenly `ago` probably dream **charge** let issue heavy relationship effect force staff consumer case traditional health.
