@@ -182,3 +182,18 @@ everything unit son nothing star because **also** why growth over also turn dinn
 |television|television|
 
 challenge question environmental hand charge garden understand student figure general remember become true top nation condition within four town perhaps though ago middle strong who feeling issue drug the `ago` before still read reveal **perhaps** set **own** our many read bad security store such **address** himself business it **perhaps** remain center meet over action **understand** action must if community report beat brother from mean similar own rate major product series force kid course word cold address ago last field first system suddenly `ago` probably dream **charge** let issue heavy relationship effect force staff consumer case traditional health.
+
+
+### Say attorney interview general
+
+|recognize|fight|
+|---|---|
+|soon|head|
+|might|can|
+|we|few|
+|candidate|look|
+|order|nice|
+|add|social|
+|answer|where|
+
+word record `either` **right** everybody `think` ask stop authority have share nature either interview think every vote.
