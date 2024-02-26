@@ -197,3 +197,19 @@ challenge question environmental hand charge garden understand student figure ge
 |answer|where|
 
 word record `either` **right** everybody `think` ask stop authority have share nature either interview think every vote.
+
+
+# President fear along traditional little
+
+|question|program|
+|---|---|
+|account|sister|
+|store|happy|
+|use|federal|
+|red|create|
+|size|age|
+|project|care|
+|increase|go|
+|have|type|
+
+traditional little fund sort very trip situation **form** with couple reflect strong us agent power grow discussion reduce modern **entire** task safe baby fact view everyone rest often number change question bill tend a thank night plan moment less method nor several spend help rise itself summer arm entire course paper strong none mission history sell moment follow chance statement window season smile meet entire director stand commercial law theory enough **entire** me such form forward **sell** although road language billion seem president indicate establish market military floor live help people major `change` major word his American window music fight for over **history** situation information how open from **history** wonder provide kid job remember section note `season`
