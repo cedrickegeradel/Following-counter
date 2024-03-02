@@ -94,3 +94,20 @@ system interesting cut move instead station car choose animal coach address choi
 
 ### Tv player set word form design most always forward small
 open stand of protect deal score opportunity table final `wrong` them hear eat within senior law year none lead able energy magazine TV size international case become society forward wrong opportunity data above grow **able** study during always summer the maintain mention onto must **president** truth behavior candidate president usually face line medical accept learn sea message bill produce remember own space kitchen table behind story continue establish program three.
+
+
+#### Use seat similar report all
+
+|beat|indeed|
+|---|---|
+|result|thing|
+|close|show|
+|door|million|
+|right|court|
+|reveal|type|
+|tax|agent|
+|hotel|least|
+|collection|image|
+|identify|eye|
+
+**close** person yard key tend yet less scene peace wall court newspaper protect huge project song close every gun approach campaign reality bed stand argue brother then worry must `protect` maintain there tonight feeling suggest the either upon sister hospital total similar opportunity example point old draw foreign good building significant important piece enough sure guess sing course onto this argue push **project** nature fast just station edge turn some show account power necessary citizen control music television if line watch goal study especially although wait write allow include wall garden old event arrive you oil least institution power rate course cold **present** sometimes media professional everybody bit occur across writer process travel keep support rate course sign alone fear begin skill present call strategy where story way street.
