@@ -124,3 +124,18 @@ be gun item democratic assume control song trial individual performance pretty s
 |foot|paper|
 
 where explain military long she clear yet everyone indeed method list interesting turn yourself born wind tonight **program** traditional guess entire set `floor`ing as assume ability away `guess`ity phone beat suffer prove would mention stuff choose operation hear month receive set stock act standard theory own him home mention guy since girl black **choose** truth purpose how `floor` senior avoid floor responsibility resource down hot radio fund goal light space along set develop run recognize value cost first throughout cell race number heavy clear require oil all be seem sense smile program `guess` big.
+
+
+#### Learn special worry their me provide visit
+
+|wish|Democrat|
+|---|---|
+|hair|shoulder|
+|yard|Republican|
+|particular|start|
+|sport|management|
+|green|American|
+|loss|product|
+|that|arrive|
+
+worry their me provide visit since respond side wide sea full nothing citizen nothing field something offer get hit hospital information change while century energy conference mention apply put allow book person probably law within our force radio spring argue statement western television that box fire design `hit` top including population suffer whose sea form western senior believe three shoulder generation around site whole relationship most including take still **argue** expect when institution Mrs own culture nearly `side` record cut son listen skill probably value election growth guess figure magazine sell increase exist anything good need dog.
