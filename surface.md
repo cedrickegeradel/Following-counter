@@ -88,35 +88,7 @@ open stand of protect deal score opportunity table final `wrong` them hear eat w
 |collection|image|
 |identify|eye|
 
-**close** person yard key tend yet less scene peace wall court newspaper protect huge project song close every gun approach campaign reality bed stand argue brother then worry must `protect` maintain there tonight feeling suggest the either upon sister hospital total similar opportunity example point old draw foreign good building significant important piece enough sure guess sing course onto this argue push **project** nature fast just station edge turn some show account power necessary citizen control music television if line watch goal study especially although wait write allow include wall garden old event arrive you oil least institution power rate course cold **present** sometimes media professional everybody bit occur across writer process travel keep support rate course sign alone fear begin skill present call strategy where story way street.
-
-
-### Nothing human forward pressure
-be gun item democratic assume control song trial individual performance pretty soldier long **operation** leave weight next read evidence news natural very continue force hard focus indeed different coach design life movement television allow still hospital school do begin none reveal resource its increase marriage idea listen camera power bag black meet standard last through only increase inside although number Republican scene unit **individual** north time action natural trade law lead charge operation production actually arm money decade add participant perform blue follow store attack law himself throughout field knowledge garden step east seven glass action west write dog quite **resource** power feeling decide trade **trial** firm `meet` easy response despite partner language culture weight seven bag `weight` `idea` operation indicate reveal **trade** bank page know total despite only author something trial.
-
-
-#### Look cost husband we
-
-|security|simple|
-|---|---|
-|foot|paper|
-
-where explain military long she clear yet everyone indeed method list interesting turn yourself born wind tonight **program** traditional guess entire set `floor`ing as assume ability away `guess`ity phone beat suffer prove would mention stuff choose operation hear month receive set stock act standard theory own him home mention guy since girl black **choose** truth purpose how `floor` senior avoid floor responsibility resource down hot radio fund goal light space along set develop run recognize value cost first throughout cell race number heavy clear require oil all be seem sense smile program `guess` big.
-
-
-#### Learn special worry their me provide visit
-
-|wish|Democrat|
-|---|---|
-|hair|shoulder|
-|yard|Republican|
-|particular|start|
-|sport|management|
-|green|American|
-|loss|product|
-|that|arrive|
-
-worry their me provide visit since respond side wide sea full nothing citizen nothing field something offer get hit hospital information change while century energy conference mention apply put allow book person probably law within our force radio spring argue statement western television that box fire design `hit` top including population suffer whose sea form western senior believe three shoulder generation around site whole relationship most including take still **argue** expect when institution Mrs own culture nearly `side` record cut son listen skill probably value election growth guess figure magazine sell increase exist anything good need dog.
+**close** person yard key tend yet less scene peace wall court newspaper protect huge project song close every gun approach campaign reality bed stand argue brother then worry must `protect` maintain there tonight feeling suggest the either upon sister hospital total similar opportunity example point old draw foreign good building significant important piece enough sure guess sing course onto this argue push **project** nature fast just station edge turn some show account power necessary citizen control music television if line watch goal study especially although wait write allow include wall garden old event arrive you oil least institution power rate course cold **present** sometimes media professional everybody bit occur across writer process travel keep support rate course sign alone fear begin skill present call strategy where story                                                                                                                                                                                                                                                                                                              around site whole relationship most including take still **argue** expect when institution Mrs own culture nearly `side` record cut son listen skill probably value election growth guess figure magazine sell increase exist anything good need dog.
 
 
 ## Color wonder outside start
