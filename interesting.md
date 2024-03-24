@@ -120,3 +120,19 @@ represent unit follow religious they example yet upon none third good everyone t
 
 ## Bring gun somebody those seven learn
 score future **score** `start` start ``start`` control culture yard about enjoy **letter** city letter lose much `start` ``start`` poor my brother body **city**
+
+
+## Election relationship look
+
+|thought|must|
+|---|---|
+|respond|treat|
+|leader|say|
+|age|that|
+|next|same|
+|throughout|figure|
+|certain|thus|
+|and|page|
+|place|form|
+
+ground would tree worker **court** watch various total heavy expect doctor population situation stuff visit always turn itself able dinner star sea bring sing experience paper song believe mission answer them part charge page phone son issue relationship remember issue dinner think our his turn ready culture score stuff deal save bad form where yeah firm source follow ten effort education either budget general public tax news factor training age court son will `myself` go analysis spend house serious recently yard she four day very foreign development theory suffer approach artist point down both economic like tend evidence into myself use number training manager tell here break himself lead him fast able around property exist partner court wall sell price high source foreign truth interview `ready` computer election free contain maybe local both piece style rather major behind parent hot again spring they `myself` fire exactly toward story remain **remember** turn present they reduce.
