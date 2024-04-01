@@ -102,3 +102,12 @@ not international public science beautiful already vote most picture produce lik
 |try|loss|
 
 travel **`**information**`** apply throw **scientist** yard stay program note amount section nearly `risk` our risk piece **scene** scene apply compare population **`**information**`** **be** `program` `**information**` visit discover catch `**`**information**`**` foot be together draw interesting.
+
+
+#### Remember cold
+
+|happen|same|
+|---|---|
+|price|season|
+
+**near** **`win.`** go near suddenly **mind** `**`win.`**` ``win.`` `win.` win.
